@@ -1,5 +1,6 @@
 # TEKNOLOGI SEBAGAI MITOS DAN HIPERREALITAS
 
+Dosen pengampu : Al Muhdil Karim, S.IP., M.Hum
 Disusun oleh :
 Kelompok 2
 1. Wulan Okta Rahmadani (12402051030005)
